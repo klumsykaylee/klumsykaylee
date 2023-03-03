@@ -4,4 +4,8 @@
 >> 1. I am a DII Student Athlete (Women's Swimming Team)
 >> 2. My favorite food in pho
 >> 3. I love being social, so feel free to reach out!
-##### Click here for social profiles! (https://linktr.ee/klumsykaylee)
+#### Here are my social profiles:
+###### Discord: https://discord.com/users/klumsykaylee#9304
+###### Facebook: https://www.facebook.com/kaylee.ward.90410/
+###### LinkedIn: https://www.linkedin.com/in/kaylee-ward-b13449268
+###### Instagram: https://www.instagram.com/klumsykaylee/
